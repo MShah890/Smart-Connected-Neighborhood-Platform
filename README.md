@@ -1,0 +1,1 @@
+# Smart-Connected-Neighborhood-Platform
